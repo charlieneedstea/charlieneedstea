@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @charlieneedstea
+- 📍 Student from France 
+- 🌱 I’m currently learning graphic design, UX/UI Design and code
+- 📫 How to reach me @charlieneedstea
+- 😄 Pronouns: she/her/they
